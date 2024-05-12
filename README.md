@@ -1,0 +1,1 @@
+# amaliyot_ishlari_mohirdev
